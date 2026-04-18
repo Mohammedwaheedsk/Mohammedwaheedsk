@@ -1,7 +1,7 @@
 - 👋 Hi, I’m @Mohammedwaheedsk
 - 👀 I’m interested in Coding and Tech
 - 🌱 I’m currently learning Basics of coding
-- 💞️ I’m looking to collaborate on Nothing
+- 💞️ I’m looking to collaborate with no one
 - 📫 How to reach me @Shaikwaheed16 on Twitter (X)
 - ⚡ Fun fact: I'm an medical dropper Student
 
